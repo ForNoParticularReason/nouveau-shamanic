@@ -6,4 +6,3 @@ I am trying to create a kind of a cultural understanding through my muse that is
 
 Today you’re called psychotic if you do that, but it’s all semantics.
 
-![alt text](https://img-comment-fun.9cache.com/media/a8yM3jV/aoKqZpnQ_700w_0.jpg)
